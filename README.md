@@ -7,9 +7,9 @@ This GitHub profile is maintained to publish the latest working links, official 
 ---
 
 ## 🌐 最新访问入口 | Latest Website Access
-- https://mdgw21.com
+- https://mdgw24.com
 ### ✅ 免翻墙入口 | No VPN Required
-- https://mdgw21.com
+- https://mdgw24.com
 
 ### 🌍 永久入口（需翻墙） | Permanent Access (VPN Required)
 - https://mdgw.com
