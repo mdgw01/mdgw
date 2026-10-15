@@ -39,7 +39,7 @@ This GitHub profile is maintained to publish the latest working links, official 
 ## 📢 官方社交媒体 | Official Social Media
 
 - 官方 Twitter (X)：  
-  https://x.com/mdgwcom01
+  https://x.com/mdgw010
 
 - 官方 Telegram 频道：  
   https://telegram.me/madouguawang
